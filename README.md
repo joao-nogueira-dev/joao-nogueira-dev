@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **rockstar games**
 
-- 💬 Ask me about **anything **
+- 💬 Ask me about anything 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
